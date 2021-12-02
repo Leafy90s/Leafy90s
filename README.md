@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Leafy90s! A little known creator content.
+- 👋 Hi, I’m LeafyHN! A little known creator content.
 - 👀 I’m interested in Discord, and bot programming.
 - 🌱 I’m a high school student.
 - 📫 You can reach me with this link: https://linktr.ee/Leafy90s
